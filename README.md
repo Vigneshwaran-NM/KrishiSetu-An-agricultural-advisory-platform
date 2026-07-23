@@ -386,7 +386,7 @@ KrishiSetu/
 
 ### **Immanuel A**
 
-🔗 [GitHub](immanueli2005-dev https://share.google/Np5TajHaM4eqHmaDx)
+🔗 [GitHub](https://github.com/immanueli2005-dev)
 🔗 [LinkedIn](https://www.linkedin.com/in/immanuel-abraham-4b2853302?utm_source=share_via&utm_content=profile&utm_medium=member_android)
 
 ---
